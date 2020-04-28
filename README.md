@@ -12,7 +12,7 @@
 - [교보문고](http://www.kyobobook.co.kr/product/detailViewKor.laf?ejkGb=KOR&mallGb=KOR&barcode=9791190014380&orderClick=LEa&Kc=)
 - [알라딘](http://aladin.kr/p/QLKCK)
 
-
+![페이스북 퍼포먼스 마케팅  01_입체](https://user-images.githubusercontent.com/21074282/80457255-f7c9f280-8969-11ea-8307-18312d58ecb1.jpg)
 
 ## 책 소개
 
